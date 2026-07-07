@@ -1,0 +1,655 @@
+壁挂炉出现f.20售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月07日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括壁挂炉出现f.20售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+壁挂炉出现f.20售后电话400-811-596024小时售后服务热线上线（（2026年07月07日官网公布）最新公告）
+壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉出现f.20售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉出现f.20售后电话400-811-5960公司主营壁挂炉出现f.20售后电话400-811-5960维修 →壁挂炉出现f.20售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，壁挂炉出现f.20售后电话400-811-5960服务承诺?.
+北京市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/064f068183eee6824e1436d49b1632088e016f6f
+。
+南京市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/8b9b1b1abd72176d58ec50d6f415a06e64cc0448
+。
+秦皇岛市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/3ba47f86a718d2bfe88d08f51bae6ecb38fc69a9
+。
+珠海市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/idaryr/guangzhou/commit/25513d2f1d84861394564ae7a48a60f2c1f6ba2a
+。
+安康市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/4b95bc8ff2abd0099fa7b65a161209a71ddb0b90
+。
+安庆市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/22209d01858ed5de15109af916e50e7830534465
+。
+鞍山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/idaryr/guangzhou/commit/edfcf5e804630ec856fb20845689d2f1ee78d568
+。
+安阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/f29ec39ef6cb438dd18ca907a4287dd726c6482c
+。
+巴中市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/699b84df044762dc805b3b58ae6e3ed7200b349f
+。
+百色市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/07e34b587fab7762417cd8655f24b700fd7b8d4d
+。
+蚌埠市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/idaryr/guangzhou/commit/9176acf273e91792a6f50b6a89ec8d82701dc3b5
+。
+保定市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/34f61afeaaa308ad040acea3b59f0093a60c79d7
+。
+宝鸡市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/b587ab98c03ea859feac24fa25d215c211f8bc69
+。
+保山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/b09ebefe05896afdb56c30180c2e38e4b24e97f1
+。
+包头市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/eaf44191c4f8d26d6e6cac211150375d34ccbcc8
+。
+北海市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/idaryr/guangzhou/commit/b5c19b4f0b2182d8a3b722fc1316a2b30d87641d
+。
+本溪市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/c25dfdbd6023f156b29b17dd6ca3a6d054d279bf
+。
+滨州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/d04467dacd8c9dffe7cececa516492fe3c9b3bdf
+。
+博罗市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/idaryr/guangzhou/commit/7bc31fa7ce43661b404e734712a71b806521d656
+。
+沧州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/ec37bc37b64df5bff7aa448d69d63d722a240f19
+。
+长春市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/f5dc6795e7f5d13855cb60fe25ec71e2571e3d01
+。
+常德市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/1ce9c23bef2382671be2b85f99538a55532e1325
+。
+长葛市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/idaryr/guangzhou/commit/dac4356c54d2fd6665bb916e67b9f805d43be1d0
+。
+长沙市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/9a2a2a028b0fe2c98d81929c6bdcbe43d378544f
+。
+常熟市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/9a5fc1b0aca2a74b8e0cbd4c8a1f754a950cddf2
+。
+长兴市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/444f554500d737398251ad420964a32c1acb36e7
+。
+长治市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/73f93c91709e9f5d78ab6a7d16fb0c504b9ccd31
+。
+常州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/idaryr/guangzhou/commit/a830e9b5185230028c048b6571a10985679b6ab1
+。
+巢湖市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/5fb2ceb52c4e37a3a138e999066e4bf270f2a725
+。
+朝阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/e889ccd3fafada6b160b57e91653ef9006d4b8eb
+。
+潮州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/idaryr/guangzhou/commit/677426dbaf44d88da77f2d2781436fff833e08f6
+。
+郴州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/7b1a55d8a2e16d18e4426ffb596625a277a0d11d
+。
+承德市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/1a9bc825d1a873835ef016a328fc1af3fbd32e6c
+。
+成都市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/7a146fb020e16bbe1db169ab8e0c8e11f26af744
+。
+池州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/idaryr/guangzhou/commit/c608e007b39fd3054f28388bbc75658478aebc40
+。
+崇左市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/59e7cefe9bb8d52f995b1ab650304914eb323423
+。
+滁州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/c9e5844ce60f1f066c2106bbe3ac188be1566747
+。
+慈溪市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/2b130996c91c81fee52eab2627c2b780fb66d0c9
+。
+大丰市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/867b911a738f7c3f988f0522d5ef35d85cedc6ca
+。
+大理市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/idaryr/guangzhou/commit/85dc4c54a202f422d5acd6145cdf19f3891b4cc2
+。
+大连市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/92521ab6d5e62e0de6d2da207c546a82d05fff63
+。
+大庆市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/9bf74700761826d11b73429ebcba9459c24e30f3
+。
+大同市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/idaryr/guangzhou/commit/64039728bdf1a5a029fd23b6fab9fe21b8d32f2d
+。
+达州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/ee64b4cd8b3f9f2e5498959a7de8082a4e3ea82a
+。
+丹东市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/f9b0cf37e574ced3ea364356e64e55a0f87a1927
+。
+德清市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/d416250f52df69609f8170d7c14d7c0ff6d12eee
+。
+德阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/idaryr/guangzhou/commit/a1072dd4ba42950f9148d36cb40122d60476ca09
+。
+德州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/a816d6e2d78f4777671fd78e95c00943648149c5
+。
+定州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/1ac1535f9fac33be07f144dec5d37ea985bb6379
+。
+东海市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/322f7f4cbb65aaaedbebda05c9f93fa243fbe554
+。
+东台市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/34e909dc6ca1765e2870b35e35fc49cfd387d409
+。
+东营市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/b792b97f90c4c2188e629364ebbea888a5fd3d4b
+。
+东莞市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/idaryr/guangzhou/commit/9db0a4f314ab1ef69b8210d62ae2b7e272fa49f0
+。
+鄂尔市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/9c5d4d0074cb0ca151a8751aa354f6a8264436d2
+。
+鄂州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/a1db6909dcec9b9e0daa1881e96d227acec5995e
+。
+恩施市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/idaryr/guangzhou/commit/9305ad8f54db527f43d0ea9642314b791718d478
+。
+防城港市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/efdb5c5dd8a39abb9a008fc71edcd2cdf317f57d
+。
+佛山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/cdbdf4e8fbf50c47194e6a67fc822b69dc85895c
+。
+抚顺市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/d11cce3856b3ae3d198f91b5e406b0d94ece4426
+。
+阜新市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/idaryr/guangzhou/commit/30bf10b100f488666e78e8815abf1d4847186346
+。
+阜阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/b564eb201d248c2496928ef21ee63fbaa07c2ca9
+。
+抚州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/53285b3e10d30f30879dc646aa5a1e75cdefff0a
+。
+福州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/c88267ef192506faa5e94b69dd05ebe1bb76342d
+。
+赣州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/098d681394ee983a6d4f18774d4051e6b07a5409
+。
+馆陶市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/be57e8047085d4a098195b0afeed3b9388cc1966
+。
+广安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/idaryr/guangzhou/commit/34c8320667faad22ab84f096579ef31a541b905c
+。
+广元市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/vagebeegern/jiazheng/commit/29b009fdbf1ddb2f3f0cf8b7beaf7332f2c56814
+。
+广州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/idaryr/guangzhou/commit/99e4a82609eeb47b26dc16cb187ce8a694ec5d41
+。
+贵港市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/63bc8c0e48e02a2a1de0e34aa278d40e0cba807f
+。
+桂林市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/c824e82b31dac4bf8db572c00e3e014fb9b90ebc
+。
+贵阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/1d2573e935ab6fe594ee67f5aca7ba678eff32e1
+。
+哈尔滨市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/idaryr/guangzhou/commit/e885ea3edc471bb355aeb3a2fcd66a3839b1fe26
+。
+海安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/59561cc29e6918b37d9cb817a35a778a55214906
+。
+海口市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/67f0c466069723cf3010517634399a6d36b561bf
+。
+海门市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/1a2b7d88b08b0f44d5b049dabecda291ab5f977c
+。
+海宁市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/c3aaa3bf43a93bf283726f7406c32d04a23e854b
+。
+邯郸市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/idaryr/guangzhou/commit/3d90491d0875b555d34983a5487afba58302f17d
+。
+汉中市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/26e082c2354b93f8a01bab9fed20a07e897e127b
+。
+杭州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/d2d55899f69cc0c4468e2eac8332fa7e292467af
+。
+鹤壁市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/idaryr/guangzhou/commit/9d66c2b847d202e16d4ca7194eaab05c68af3061
+。
+河池市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/81f4dd63bb2f577538662c977a6f69c23e91cedc
+。
+合肥市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/4140ace29ced1ca47b2217c97f9150bc94c71dfd
+。
+河源市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/26c1288aad17a3a89b805a5798fcf88d6a6fbe4f
+。
+菏泽市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/idaryr/guangzhou/commit/05af809423420c54aa199bd801c117c07cebaaa0
+。
+贺州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/c351e9516767b2b40ae919e6405d2891640b6aa0
+。
+衡水市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/c95596c2047fa40e3bd35ab11cb9967b3faba0fd
+。
+衡阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/5fc4136f4422a9049c355b9b0136afcfc5ef0fdf
+。
+呼和浩特市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/ec41f338bc1dc75438bce95f110659eaee22d511
+。
+葫芦岛市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/idaryr/guangzhou/commit/a4e5cef770cc438bf49bbee234e658e6c083ae38
+。
+湖州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/921118e163780fb721e97435f27104e8933456a7
+。
+淮安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/6a458d0e8b469dcbbc10a3d97f3272c0e89b51f2
+。
+淮北市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/idaryr/guangzhou/commit/9fcc1170b3f9224e508d811afcffa152ba323ddf
+。
+怀化市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/880eaf3bb07b341bae507550a5d333f51a4a744f
+。
+淮南市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/706ad72b860bfc7c7f62dd931f8f873f9bfc4c73
+。
+黄冈市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/024f163ed31387ca47dfac1c599858bebe43d351
+。
+黄山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/idaryr/guangzhou/commit/276319a0be0ef6eac583f1e131fbc567b76211cf
+。
+黄石市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/aea9f7a65e1dc5df44c5a56fe5095ae87470f581
+。
+惠东市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/41279355e970720293ed9ea916656031ef9b7fcb
+。
+惠州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/64c1ad1d33859f4d375ef3108c9fe8313f46856c
+。
+霍邱市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/7e87dd9e16126f92107954646d1607a46bd1e48f
+。
+吉安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/idaryr/guangzhou/commit/e25487e04252a7cf3760dfa5022bf9cc1fc23fc7
+。
+吉林市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/ec8c27683091bf73aea513816070ba270038d942
+。
+济南市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/7f559e9a67899cf413ae6cbba2a6d95bb2d1a6ad
+。
+济宁市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/idaryr/guangzhou/commit/ed9c11d3ad22aa149236ca12f036529c6a83bd51
+。
+济源市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/4c3354589045286e8b49ea438809ac61a2cada19
+。
+佳木斯市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/6ef8303dd82fb192b06bd203b21759f40be48b3a
+。
+嘉善市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/vagebeegern/jiazheng/commit/8458be9b6da8f4d2e534ca29de90436a94c2fbe5
+。
+嘉兴市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/idaryr/guangzhou/commit/905c5770ca45a81942e7938c8d24bd0cea6edac8
+。
+嘉峪关市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/daa2cee43c80c17a87e73e7d01b9a839779c09ba
+。
+建湖市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/e1f3dc996d75f2d15f3af9b650e1957e87484e47
+。
+江门市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/29aeaedfb00dda3214d670169db39e4fcd6998e2
+。
+江阴市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/9b8d23d6149e3ce395cee00267cb7d6785a79a8a
+。
+焦作市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/idaryr/guangzhou/commit/46003351271fcb21e16155035647865faed26a28
+。
+揭阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/685a753567911ef1f69a1f0c90487129db367a30
+。
+金华市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/038c73554e0c1f4ad583a23f7d9fcfcbdc60fdcf
+。
+晋江市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/idaryr/guangzhou/commit/eff7922914a950dc2a02ffaa38cfe90fb321967d
+。
+锦州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/a9b96eb8e5cbdc0b2994042e8677925dc4e75d15
+。
+景德镇市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/07634b11d0d091b6e3516723656d37255a528b29
+。
+靖江市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/vagebeegern/jiazheng/commit/cbc983a815b35e3f8137610c4de85f0f435188cd
+。
+荆门市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/idaryr/guangzhou/commit/2933a3732c7372d305bdb0f83a8a5762c9ae0699
+。
+荆州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/909d8abac2caa58e3be8417b2be030e7359c3efb
+。
+九江市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/6fd711bd59ad5505c77b0b77e22bef752163c226
+。
+喀什市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/4ef19aaca486a8dc66bb389ec8aaaa46ad266a09
+。
+开封市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/0a21c8db77c2cb649ed926edd1f11a9ca5274df6
+。
+克拉玛市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/idaryr/guangzhou/commit/95ca615933d531038088c84aaa54e17e74349c03
+。
+垦利市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/6f06dd9ab9f76777075d4db6076a289fd58d7a3e
+。
+昆明市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/968496d7ec3c6ce769baee8850559a142404bf9a
+。
+昆山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/idaryr/guangzhou/commit/456fd96a2787eb8d67812c57d95d998251492b7e
+。
+拉萨市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/8239e5a87a526d533aeb76bce4a8acd237c75159
+。
+来宾市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/513a42832689deea6d73dec280bae88ece407e64
+。
+莱芜市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/eb0431c210289270d96323d93a052ee8e4575ff9
+。
+兰州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/idaryr/guangzhou/commit/0afbd19084277d6d04b45520b647559a1625e8ab
+。
+廊坊市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/f025847861ae535c8f5eb66cfacd139a8d050582
+。
+乐清市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/ba46ade4009aaf21586ce3a57e060354ae4c0bc1
+。
+乐山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/e3f4712761578d816b7277c670936fbc9e212436
+。
+丽水市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/31730ca945faceb97fde97896563befb0463a2df
+。
+连云港市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/idaryr/guangzhou/commit/a37581ef4362afefa7ff7aaef32497415771e82d
+。
+凉山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/1f790353401e1f23a0debf01e6f8b15ddbd28159
+。
+聊城市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/dea2a5a59bc13e305a84873811b1086f178bf7e1
+。
+辽阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/7f0dae174df74c68115b33ca486d3a985febf4da
+。
+临汾市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/idaryr/guangzhou/commit/97981dba487133c6274825498e0e6d83d992e356
+。
+临沂市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/4cb23fa912063192d7872a6ebbdf31af0d236b0f
+。
+六安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/vagebeegern/jiazheng/commit/59bedeac68a2553981c3b287ac208c96391ed0f4
+。
+柳州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/idaryr/guangzhou/commit/119c1d55d652aada66625dad82f92f57fef8444d
+。
+龙岩市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/fc55702339a86050e28f8da3544afdd6daa4fee1
+。
+娄底市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/707afff000cf13e24e2516db92fac85ef7c221c8
+。
+洛阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/vagebeegern/jiazheng/commit/c0e09ab23d14b599eaaa8fafb676421cfe719969
+。
+马鞍山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/2013cc883ec24a0a456a91b60130039b39877d1a
+。
+茂名市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/4974144babf37a29f9295b19a836d62ff2080051
+。
+眉山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/idaryr/guangzhou/commit/2ae95fbf18f39c63d57d394f52ba2d45bc9b8e97
+。
+梅州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/2fb750099e37710c50cbebb3fabd7c0b2b453289
+。
+绵阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/idaryr/guangzhou/commit/b88ee08f31859148dd7985e67fa831ae17e37ef3
+。
+明港市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/0e9b82895f295808e2d8d4a76518b90ff69dcac0
+。
+牡丹江市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/c9efa5d54319fcd383fc8a096cd4f70f8bcdc096
+。
+南安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/a1580cf9a98d298dee4266dd3d21af4f991b4e03
+。
+南昌市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/idaryr/guangzhou/commit/d2ae46c50f20f316f9ad86a55af8227cf60ee712
+。
+南充市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/affad543d30140d25a8747350053635a7fbd19a1
+。
+南京市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/a1fab7a7259a194039396adfda6c579241f04828
+。
+南宁市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/dd2615f4e1943d11a88781f5492da2b6d0e3b9aa
+。
+南平市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/895ed27bb66c0850238fd425713586682002c055
+。
+南通市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/idaryr/guangzhou/commit/c8ada03394d38457ba4cbfe2cc6059c9b615eae9
+。
+南阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/b0ca99247f89a051149908749ce089e2603466d3
+。
+内江市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/c3c77593e08725ffbc88aa96129d536d89ccfc2c
+。
+宁波市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/idaryr/guangzhou/commit/c78feca42997e0512cffed778a609eb7bf65a999
+。
+宁德市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/362aefa03d3ba3a8a0bd2d71cf2078bebcaa620c
+。
+宁国市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/5391b160f1a7f675bf3d20ba2b90114b036ac312
+。
+盘锦市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/1252281cd0a84235bc789160a3ed1ffccf85174e
+。
+攀枝花市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/idaryr/guangzhou/commit/c31c8d94e4c10fac10c6a7d02c6e265d876eaf59
+。
+平顶山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/392df45ea45a35dd74df71b284a15ab2b39aa027
+。
+萍乡市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/e10b42456bcb0c94baa064cb86083f0dcc8b2a77
+。
+莆田市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/bddced6dc88e49743fb5cd9a09c08fe011c0361f
+。
+启东市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/3222d2037237b031b5e697a5eb729056e262e018
+。
+齐齐哈尔市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/73135a3c7cac5ab50d67e9fb313d44975e30303f
+。
+潜江市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/idaryr/guangzhou/commit/b0bb5d7270d2873a241ea1de3fb0424686b2a134
+。
+秦皇岛市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/6f8052e295fbcff7d643dc5a0e8962bd2ae09305
+。
+钦州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/a40d823af19a9c374605174845e4b9c6df773f34
+。
+青岛市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/idaryr/guangzhou/commit/50d4838f9b1d64483cb35b84630e9f46c9df672c
+。
+清远市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/c6985449d31e09da880298b788a600d061228092
+。
+曲靖市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/c770c2a34da386a40fde0e6e62d184a6dd720ee4
+。
+泉州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/idaryr/guangzhou/commit/be46b67d195ee75468b4a7fedb83eac82f15b298
+。
+日照市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/8ab59cddb2272cfb789a7486b844ba1a6a447c2b
+。
+如东市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/b7775add58f8cf628a5021b5dccc3dcc89550589
+。
+如皋市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/ac2f6251f1e1f537c3db68b5108b6900949c9d2e
+。
+瑞安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/96d232d08c8e25aa2c9ae0c4d9ba54c7a7a7a8e0
+。
+三门峡市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/d30c0e0887eb003df35900ed592e0eb229a0505e
+。
+三明市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/idaryr/guangzhou/commit/83d9aee07957713cdf1941cbb93ef71f24c0b076
+。
+三亚市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/7efef9753d05bf474904de4e38852540488556c0
+。
+汕头市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/idaryr/guangzhou/commit/16fb909bc5f3f7f82b003db00d03e35f382b8d54
+。
+汕尾市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/9bdb10683f7aa25c1503aa45b5455672256e8a75
+。
+上海市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/d2cea20b6600e206445ea59b86eb524b91e069fa
+。
+商丘市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/idaryr/guangzhou/commit/25f8f4d9747db147e9751be0ee0d0fe5212c31a8
+。
+上饶市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/1e9457c0846aea4e4cf83b176f4f2c4fa539cb57
+。
+韶关市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/4b7accd204c472820d126f7d27a0dd1f1c8f5213
+。
+绍兴市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/3c27ce4287c42e0636e704724706faea76759b4b
+。
+邵阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/idaryr/guangzhou/commit/d7274476d63488b372c478a1418ac20b48a5db43
+。
+神农架市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/72eab3429ee63c77be56a121051fdd910d281c0a
+。
+沈阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/3e2949ade901a4066c5913449f9b0f7b03c016c6
+。
+深圳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/0a46fdd17ab3007564cd9b180d49a26a46624cbb
+。
+石河子市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/28c12df626895cdf84015cf2678b03d127c964f6
+。
+石家庄市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/idaryr/guangzhou/commit/b82370add242175850beac20d3c8c4eb05279c91
+。
+石狮市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/00e79956b3336c85608ac4c27405edca76c0c323
+。
+十堰市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/d10dea692e21c48a692409daded2160980efb7a4
+。
+寿光市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/idaryr/guangzhou/commit/c49b5d732a688e31ddd2da4bc5cf7c403d52a76b
+。
+顺德市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/5e357392f1213e07db6efd2defecdbd1cfccd1a7
+。
+四平市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/093a7a60ade8a58648980a0cb8b22b3d208f7fcb
+。
+宿迁市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/cc5c6603885ae7d0f50c7352d8f99333bbf7b317
+。
+苏州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/9b50f7f48844a9fa8118eeb83db5125e33e4fa82
+。
+宿州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/7c2adb7adf31dd272c723cea7d734f3b47eb808d
+。
+遂宁市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/941f77fdf83643bc86ba57c67410b2cea5d4a850
+。
+随州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/idaryr/guangzhou/commit/52728be3bb9e37b0b4994f69d45d2628f88e7a8a
+。
+泰安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/6098fd9bf6e289201080bfd1411839ec9316e207
+。
+台山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/23f0c72d6636d3c7033f3c484f5a2ea0b0506c50
+。
+泰兴市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/idaryr/guangzhou/commit/24e790d489d04964f979ab518682f47c2883fa6d
+。
+太原市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/70bc96ad9478056094891764a8a60469985e208e
+。
+泰州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/idaryr/guangzhou/commit/2d93b95a6f4ab8c131c648ceaed174810e1271b9
+。
+唐山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/3c6a261541b896af35c45d6c6b93f5460d8dc6f6
+。
+天长市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/ff2fc1ec0be687445750ad1d2acbd9cfa4348a2b
+。
+天津市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/2d3b6c8560b405a84ce13e482afc530059cef21a
+。
+天门市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/9507a4496f741d60b81819ba3915c42d49f0687c
+。
+天水市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/37d67bd750b8bd7f86fa18515683c0afe02080e0
+。
+铁岭市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/77f29df787f765f6333003f9b6d93f5777acc1b6
+。
+桐城市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/idaryr/guangzhou/commit/bb2b1cdb012cb5bff6ad854cd6246b6a295da959
+。
+铜川市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/8588133b410286df52ee6d5e5926f283a78bfd3e
+。
+铜陵市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/10d1f2ad30240cff2f935762b17bbe706fa70f0e
+。
+桐乡市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/idaryr/guangzhou/commit/8f4d7f329815fa6145d9b9d6efa5f2bc03e31324
+。
+瓦房店市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/95ddae75c0b6487eedab8c30f86d459b4aa655e7
+。
+潍坊市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/idaryr/guangzhou/commit/47fe57d60a56606f10b87f461ea496112b45466e
+。
+威海市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/20f718994eeec2b95aa2857aeeb9f4908b3d67d5
+。
+温岭市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/a8872be3049657d4621e8c160da3d7b1945dc218
+。
+温州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/bd35d71d4e60109e7f51f9cd651a4b5014a39696
+。
+武汉市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/38b3071ed48ea4f3bfc931f350ac510924bd7649
+。
+芜湖市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/idaryr/guangzhou/commit/87c0aafd20ad05c0f332ef450608de1684ad24bc
+。
+乌鲁木齐市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/f881aaf20fcfe5586932a020b97a4dfa14012ec7
+。
+无锡市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/vagebeegern/jiazheng/commit/8dbd88c177d90e79ff3ef48d06ecb5d2764120d1
+。
+武夷山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/idaryr/guangzhou/commit/b912e640a2990f8dce1e7253c421f24622287938
+。
+梧州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/a078b6261903b8d13aff2bec33685858144c0978
+。
+西安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/vagebeegern/jiazheng/commit/3530bbcaa6b52bdcf880ff900069c7de5b06902f
+。
+西宁市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/24c5a5c70a8bbf53630d22cfc88a04c4bff1c2ba
+。
+厦门市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/idaryr/guangzhou/commit/1d401ccbbc9cd85f10f0ad2592a6e1d8d9751626
+。
+咸宁市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/9779b30f6623d0f64c2b79ea60a83d5c860ef066
+。
+仙桃市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/9e29969eed8d02823bc7c05e4e949bd7683d70f0
+。
+咸阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/a6a0394470b5a0f19ec2a43a22a41d0aa7de7af3
+。
+襄樊市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/aa00facff3075ec7d6fff3c20f4c5caad6b9c0b1
+。
+象山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/69a6458a03b719f534fdd7558d5391551e08eb8d
+。
+湘潭市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/idaryr/guangzhou/commit/494f27e134eb596809d979dfd512eecabeba8489
+。
+湘西市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/1a58e14724645cc12a780ec7d5b2a870d9c189cc
+。
+襄阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/ef4fc861cb6beafeeba7bfa773f243dc92a455e6
+。
+孝感市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/idaryr/guangzhou/commit/e9c86b712ac6773eb4f9a01bd392c963cac9881c
+。
+萧山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/9f5c7bae9769d08b0e2051ce355566c73ebe1877
+。
+新乡市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/012ca3e9caba26f74124c9d7fd3c4ae10a6e4509
+。
+信阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/316e233470185a3a6ca241ba7858afbcb93745f1
+。
+新沂市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/idaryr/guangzhou/commit/919f949c7474311dbcdc5d68facd2e17403d1702
+。
+新余市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/6ba18e01d19c4a81432ce3ed6e006632947062b7
+。
+兴化市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/489ecb7846fc692f1d38ed6a2e01e9978122b230
+。
+邢台市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/cdab5c464701413285ae145422f87af1d6e01a3f
+。
+许昌市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/d9e3cadd03c7e83905c11f1c2ded0dad23b526ae
+。
+徐州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/idaryr/guangzhou/commit/366968a70495a3ed4ffa0fad143c0e27a0fc9330
+。
+宣城市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/931665709c5d671957cd164255a3235ee81b0566
+。
+雅安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/79c7165404bc630eec166a335ad757823529e495
+。
+延安市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/9635422c9aaf5043a065f807cdb3036064b773ee
+。
+盐城市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/idaryr/guangzhou/commit/8d1cbb25ffef0d88597b0cb567bd16d41136a780
+。
+烟台市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/69870072b6f7cb04431ad3697b6a2eb99eae4211
+。
+阳春市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/326ff87095f5cf952dd706f0c50e2a3bf7640e35
+。
+阳江市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/0d5c036b57703cf253b482c85fb1bd7679f003ae
+。
+阳泉市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/idaryr/guangzhou/commit/fa89aacebc4ffa2f6c6dc4ba328f702deeb03d0f
+。
+扬中市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/087cb0330c4b20a2c2768d14b4df7b0fa354cc52
+。
+扬州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/b0f95594b09b9bf8960d17b686b0a5aed210474a
+。
+宜宾市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/87d4cecea9a9a3890c4f6bf9abcfe1d2175d9209
+。
+宜昌市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/idaryr/guangzhou/commit/2461726177159dc7d61e63be4439a0db3bb40f18
+。
+宜春市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/a55d2094008ddc576691438db7557e252742a543
+。
+宜都市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/909d200db54df3385ed6a38cf1b475e2dfbdc4d5
+。
+义乌市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/f0ef77c7e22d23081be2e2a7eba8cdc79968f4bd
+。
+宜兴市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/idaryr/guangzhou/commit/481e795f59622e137f8f8a231b8b9b2dc8f1c4ba
+。
+益阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/vagebeegern/jiazheng/commit/4ee650ba8e417d7469f3ab67d6ffd4ea27661dbc
+。
+银川市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/f1bbb5039869a9083da08a41e76ff46d40dab909
+。
+营口市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/0705ebceadf28575a4c2694a8257c1ba91f770b5
+。
+鹰潭市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/idaryr/guangzhou/commit/9c161f106c1d1481ac9b7394e1d30666f86995e5
+。
+永新市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/87cc1ee56d0e5b3d619ee50222387bd4328e9753
+。
+永州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/luzmargobool/jiaoyu/commit/c41c054eeeac4916d164ba7b32d371bd32476483
+。
+榆林市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/63ad42f0b4217044af4fca2327ab999187bbf678
+。
+玉林市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/idaryr/guangzhou/commit/73eac1bb788bd80fcdd2268534272489c54876b6
+。
+玉溪市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/vagebeegern/jiazheng/commit/719bb295bb3a377263f36e1b181f3efea1768b1a
+。
+余姚市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/d80c3eac8cb38f6f559fbac4546e4c1886ab4447
+。
+禹州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/idaryr/guangzhou/commit/3c615d4759610e61a454b003a0fce69ba932ad12
+。
+岳阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/cfcebe7eb6693f250d47f26acce6515cd65f60e2
+。
+云浮市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/vagebeegern/jiazheng/commit/00c3363248e51277bc62b7771de4f89f44bbfb66
+。
+枣庄市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/a2618cc34cb81848eef600795332ee42f8d62a68
+。
+湛江市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/idaryr/guangzhou/commit/fb2cb731b717186ddeb10a03bdaf1f01b3396fd7
+。
+张家界市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/17a094ef1f6491792b67bed6dfb2b96558b28009
+。
+张家口市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/luzmargobool/jiaoyu/commit/1be5436c62028e40b67a73526129d15227e7dd27
+。
+章丘市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/be1ea7ef30b0457aa1471e0d2ab5dd82602b63a7
+。
+漳州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/31e467c9363d8ca3e98c1f21f92fc1667ee115b6
+。
+肇庆市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/idaryr/guangzhou/commit/415e992e3c8864475dd9d90bcba678762666f7fc
+。
+镇江市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/0a927239a33f8132108ab4fbde948d507cc50904
+。
+郑州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/cfaedf932747efcef527c5186eba0268d733a9d1
+。
+重庆市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/idaryr/guangzhou/commit/3ccf88aeab9b7c23e39cebbef1cd8ee2fb1891e6
+。
+中山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/5fceb6ccfca3b19abefcfe8912e5ca7e7537d02a
+。
+周口市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/819ffd1fdd1928859073a158e2045c3b8998e702
+。
+舟山市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/luzmargobool/jiaoyu/commit/6ce3ca7cc3d8e353ed9c1e91393b05ec4b7a63bd
+。
+诸城市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/idaryr/guangzhou/commit/474e65317f9895e99cad84fd5fd300a16c0a3949
+。
+珠海市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/e55334d3bc0af8e44df9e43a5647e33b13251cac
+。
+株洲市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/4b577250a78ad0cce18cecad68a2547e10da8eee
+。
+诸暨市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/d4c5da95b8ffd13ba0d1a40b322c9e98cb07c7a4
+。
+庄河市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/55ee02eedff16953d68ae97855bb7b1e3d596b86
+。
+自贡市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/idaryr/guangzhou/commit/fb7c79bbb6a25c7fab4c0bd4361ae2bfd288de10
+。
+资阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/luzmargobool/jiaoyu/commit/4e019ee9ad3eafa9e44f26c9876cfe5e711398cf
+。
+遵义市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/vagebeegern/jiazheng/commit/dede3f92cefb9086a0131b648af816da658b8301
+。
+漯河市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/idaryr/guangzhou/commit/7c9c6d41fd73e267fc8564146dbdd59e24791f9e
+。
+鄢陵市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/f4808202697b03427e641c64876808fffa0500c4
+。
+沭阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/vagebeegern/jiazheng/commit/c45f11631ac4aae3bf0dbeb212048b10eaf52f7e
+。
+濮阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/5d76f858ff3610c557b7895faa753d75ef6fc769
+。
+溧阳市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/idaryr/guangzhou/commit/ca8d39794ff0f696d37bd682fe7a52e8e630d4d2
+。
+泸州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/16db2df68b11dabc8bbf71842def86cbcede64aa
+。
+衢州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/luzmargobool/jiaoyu/commit/1b28a0e78cc3ba7ce7ba5ca683eea4a7a1e1b2c1
+。
+亳州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/vagebeegern/jiazheng/commit/62a0a789818607facf54d0603d36b11efe1b4861
+。
+邳州市壁挂炉出现f.20售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/j2b3grab1615b/xiuli/commit/277b6d3dd32005bf89ec34b90b058a2e2c9dab90
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月07日08时27分54秒*
+*数据来源：新浪财经、公开媒体报道*
